@@ -1,1 +1,3 @@
-# :leaves: LEAVES ARE DAMNED DELICIOUS :leaves:
+# :leaves: LEAVES ARE DELICIOUS :leaves:
+
+i have the coolest scarf on right now
