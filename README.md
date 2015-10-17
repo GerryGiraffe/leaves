@@ -9,3 +9,5 @@ COMPUTERS ARE SO COOL BECAUSE THEY ARE SMALL
 ## I MITE GET SOME :eyeglasses: BECAUSE GLASSES ARE COOL AND I THINK I'M FARSIGHTED
 
 ![wat does it say?](https://cloud.githubusercontent.com/assets/15115070/10527525/b9f55aec-7345-11e5-8f02-86a16db01079.JPG)
+
+a gerryatric is someone who is a cool giraffe named gerry, like me! gerry the giraffe! 
