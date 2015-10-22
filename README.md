@@ -13,3 +13,24 @@ COMPUTERS ARE SO COOL BECAUSE THEY ARE SMALL
 a gerryatric is someone who is a cool giraffe named gerry, like me! gerry the giraffe! 
 
 ## EVERYONE PARTYING ALL THE ON THE WEEKEND :tada::tada::tada:
+
+                 /~~~~\   /~~~~\
+                 \    /   \    /
+                  |  |_____|  |
+                /~             ~\
+       /~~~~~-_|  /~~\    /~~~\  |_-~~~~~\
+       \ ==== /| |   O|  |   ^ | |\ ==== /
+        ~-__-~ | |_---+--+----_| | ~-__-~
+               |/~             ~\|
+               /                 \
+              (      O      O     )
+               `\              ./'
+                 ~-__________-~|
+                 |   |\__/|    |  COOL ARTS OF COOL GIRAFFES LIKE ME GERRY THE GIRAFFE
+                 |   |/~~\|    |
+                 | /~~~~~~~~~\ |
+                 | |         | |
+                 | |         | |
+                 | |         | |
+                 | |         | |
+
