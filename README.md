@@ -43,4 +43,4 @@ WOWW I WS SO WAESTED!
 # FRUIT FLIES ARENT VERY COOL THEY FLY AROUND AND BUZZ MY FACE AND ARENT EVEN MADE OF FRUIT
 
 ### Who the fuck is this new fancy-looking giraffe?
-![](hhttps://cloud.githubusercontent.com/assets/3228068/10860736/205b03c8-7f2a-11e5-9841-d42f53808106.jpg)
+![](https://cloud.githubusercontent.com/assets/3228068/10860736/205b03c8-7f2a-11e5-9841-d42f53808106.jpg)
