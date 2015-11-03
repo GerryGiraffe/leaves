@@ -44,3 +44,5 @@ WOWW I WS SO WAESTED!
 
 ### Who the leaf is this new fancy-looking giraffe?
 ![](http://screens.jess.la/2015-10-30-s3hq1.jpg)
+
+IT WAS PRETTY WET TODAY AND MY FEET GOT WET AND THAT WAS COOL BUT NOW I WANT MY FEET TO BE NOT WET THAT WOULD BE COOL
