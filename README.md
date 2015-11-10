@@ -46,3 +46,7 @@ WOWW I WS SO WAESTED!
 ![](http://screens.jess.la/2015-10-30-s3hq1.jpg)
 
 IT WAS PRETTY WET TODAY AND MY FEET GOT WET AND THAT WAS COOL BUT NOW I WANT MY FEET TO BE NOT WET THAT WOULD BE COOL
+
+![YOGA IS COOL](https://cloud.githubusercontent.com/assets/15115070/11076273/b6d7a126-87ae-11e5-9138-091f59141c80.JPG)
+
+## yoga is cool and and makes me mellow and cool but it makes me tired too and i guess thats cool but right now i could just use a nap for COOL GIRAFFES LIKE ME GERRY THE Girafffffffffzzzzzzzzzzzzzzzzz :cloud::cloud::cloud:
