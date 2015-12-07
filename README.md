@@ -54,3 +54,6 @@ IT WAS PRETTY WET TODAY AND MY FEET GOT WET AND THAT WAS COOL BUT NOW I WANT MY 
 ![yoga makes me tired](https://cloud.githubusercontent.com/assets/15115070/11384561/a32192e6-92c5-11e5-995c-f8f76751c1da.JPG) woww yoga made me tired and now i am resting and maybe i need something to eat but i cant find any leaves but i'm almost at this box and it would be cool if this box had :leaves: in it
 # I LOVE LEAVES
 :zzz::zzz::zzz:
+
+![FLICK THE POLICE](https://cloud.githubusercontent.com/assets/15115070/11633530/b80781b6-9cc0-11e5-9ac6-316af1a2ebc5.jpg)
+### :notes::notes::notes:DESPITE ALL MY RAGE I'M STILL JUST A GERRY IN A CAGE:notes::notes::notes:
